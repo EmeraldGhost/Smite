@@ -1,2 +1,14 @@
 # Smite
 SMITE IS A SCHOOL FOR TRAINING YOUTHS IN THE  FIELD OF EVANGLISM  
+S.M.I.T.E. is a unique 5-day meeting where young people from Bible-believing churches throughout Nigeria not only hear preaching, but also receive teaching that prepares them to reach others with the gospel. There is daily morning instruction on the subjects of:  conducting Bible clubs, winning children to Christ, teaching a Bible story, showing a missionary story, memorizing Bible verses, leading a group in songs, and using evangelism tools.  During the afternoons, every teenager puts to practice what they have learned by conducting Bible clubs in teams throughout the local area. Each day is concluded with spirited preaching from selected Nigerian preachers and our American visitors, with song specials and dramas from the churches represented.
+
+Over 30 years ago, S.M.I.T.E. was founded in Louisiana, U.S.A., under the leadership of Bro. Jerry Purtell.  We were thrilled when Bro. Purtell determined to visit Nigeria for our first S.M.I.T.E. in 2010, and in 2013 our first camp graduation was held, culminating a 4-year training program that S.M.I.T.E. offers to every young person.  
+
+Over the 5 years of our S.M.I.T.E. in Nigeria, not only have many teenagers, single adults, and youth workers been trained to reach others with the Gospel, but also we regularly get reports of Bible clubs being conducted with S.M.I.T.E. materials through churches in Jos, Benin City, Calabar, Ibadan, and Aba, as well as many other places. 
+
+The Student Missions Institute for Training in Evangelism now has a proven record for helping our Independent Baptist Churches develop a program for winning young people to Christ.  Pastors, let us help you establish an immediate youth ministry by allowing us to equip your young members with the tools they need to carry out the invaluable training they receive during their week at S.M.I.T.E. 
+
+The following is some more details:
+It will be open to all young people age 15 and above who attend from independent Baptist churches and any ministers who wish to learn about youth ministry and Bible clubs.
+·        Truth Baptist Church will provide for the housing and feeding of all the campers during the week on Sunday through Friday.  Each person will need to transport himself to/from Abuja, and we do ask each young person who attends to bring N2000 to help offset the cost for the camp.
+·        We need confirmation (e-mail, call, or text) as soon as possible if you plan to participate in S.M.I.T.E.  Please contact me of how many from your church will attend, and announce to them the fee.  It will help us to be informed of which ones in your group attended last year’s camp.  If your church used the S.M.I.T.E. materials to conduct Bible clubs, then we will schedule one of your teens to give a testimony of the results.
